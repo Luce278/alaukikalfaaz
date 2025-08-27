@@ -2,7 +2,6 @@
 {"dg-publish":true,"permalink":"/urdu-poetry/poets/intikhab-e-momin/falak-ka-haal/falak-ka-haal/"}
 ---
 
-
 लगे ख़दंग जब उस नाला-ए-सहर का सा
 फ़लक का हाल न हो क्या मिरे जिगर का सा
 	- Translation:
