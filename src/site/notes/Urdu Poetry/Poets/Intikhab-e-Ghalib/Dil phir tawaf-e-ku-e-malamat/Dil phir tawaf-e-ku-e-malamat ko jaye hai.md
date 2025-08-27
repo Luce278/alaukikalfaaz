@@ -30,7 +30,7 @@ pindār kā sanam-kada vīrāñ kiye hue
 	***Having deserted the temple of pride and self-importance.***
 		- The emphasis on dil —the heart—as the one undertaking this journey, rather than the poet himself, suggests a profound loss of agency. The poet appears merely a vessel, compelled to obey the whims and demands of the heart.
 		- The use of phir (again) implies repetition—he has walked this path before, fully aware of the humiliation it brings, yet he returns.
-		- The phrase tavāf-e-kū-e-malāmat_ is employed masterfully. To others, this street offers nothing but disgrace and rejection. Yet the heart, indifferent to such worldly judgments, drives the poet to circle it as one would the Kaaba—suggesting that the beloved is revered as divine. This inner tug-of-war between heart and reason is a hallmark of Ghalib’s poetry.[[Urdu Poetry/Gumnaam Shayar/Essays/The internal conflict of Ghalib\|The internal conflict of Ghalib]]
+		- The phrase tavāf-e-kū-e-malāmat_ is employed masterfully. To others, this street offers nothing but disgrace and rejection. Yet the heart, indifferent to such worldly judgments, drives the poet to circle it as one would the Kaaba—suggesting that the beloved is revered as divine. This inner tug-of-war between heart and reason is a hallmark of Ghalib’s poetry.[[Essays/The internal conflict of Ghalib\|The internal conflict of Ghalib]]
 		- In the second line, the poet acknowledges and mourns the abandonment of the temple of pride and self-respect—only to return to the very street where he has been repeatedly humiliated.
 		- **In conclusion:**  
 		- The poet laments his helplessness before the impulses of the heart. He has, it seems, surrendered entirely to its will.
